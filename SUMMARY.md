@@ -2,4 +2,5 @@
 
 * [Initial page](README.md)
 * [《狂人日记》](kuang-ren-ri-ji.md)
+* [《红楼梦》](hong-lou-meng.md)
 
