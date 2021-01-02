@@ -22,6 +22,8 @@ feudal + agrariam\(封建+农耕\) 为地主工作
 
 
 
+population spread out
+
 
 
 
