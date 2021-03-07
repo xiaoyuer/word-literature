@@ -105,7 +105,19 @@ want to have our own way
 
 how he think about universe
 
-## Part Two
+### toothache people enjoy moan,  moans serve what purpose?
+
+help the pain, makes the pain more bearable, moan loudly, upsetting other people, pain reflecting back to others, he enjoys both
+
+He thinks how the relations works 
+
+
+
+part one - theory 
+
+part two- Practice
+
+## Part Two- Humiliation
 
 
 
