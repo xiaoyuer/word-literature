@@ -119,19 +119,6 @@ part two- Practice
 
 ## Part Two- Humiliation
 
-part I - narrator 40 years old 
-
- part II- reflect on 24 year old self  -- retrospects-- what happened to me that shaped my world  view
-
-they distain him 
-
-* be suspicious of the narrator because they often make fabrications
-* undermine own narrative
-
-eg: Wuthering Heights\(old maid told   hate elizabeth\) Oddsey
-
-南
-
 
 
  
@@ -145,114 +132,6 @@ eg: Wuthering Heights\(old maid told   hate elizabeth\) Oddsey
 he anticipating what everyone else thinks
 
 concern power relations
-
-anticipate 
-
-#### what does rational system rob you of?  -- to have his own stupid will
-
-### officer : not capable of provoking anger
-
-no power over this officer
-
-the officer behave according to hierarchy
-
-low ranking poorly paid civil servant
-
-his narratives shows he move to the department because he wants it but the incidents of officer sugguests his behavior is involuntary right, he is also moving according to the system
-
-#### this makes him happy, because he drag the higher level people down, talks about himself as being in a higher intellectual plain than others
-
-Zverkov
-
-### everybody bowing and scraping to  somebody, what's underground man's stupid will?
-
-he wants people to bow and scrape to him
-
-### his exercise brothel
-
-be refused by prostitute
-
-he want them to realize his existence
-
-### he aware his day dream is literary, other people realize this as well
-
-\(Liza: you sound like a book\)
-
-## what prevent him to have own stupid will
-
-he act as copy of a book 
-
-if he get thrown out of the window: grant him power over others, he imagines himself as the hero
-
-after he realizes his doing as a book: he get hurt and force others to know his hurt
-
-## literary question?
-
-am I even real? am I a person
-
-if I feel pain and  make others feel pain as well, I must exist, matter real
-
-### with Liza\(prostitute\)
-
-in a novel: he lifts her out of the brothel 
-
-## Nicolai Chernyshevsky? what is to be down?
-
-## 尼古拉·加夫里诺维奇·车尔尼雪夫斯基-happy ending <a id="firstHeading"></a>
-
-\(utopia system of making society\)
-
-young, middle class man + 'redeemed prostitute'
-
-he hate the system 
-
-### Liza sees him and pities him
-
-he gave her money to inspire her status, but she demonstrates her superiority over him
-
-The things he shouldn't do always drives him to do it
-
-### he tends to harangue himself and others of Romanticism Sentimentality, feeling to much
-
-### in his imagination she's not his wife, to mold to create another human soul
-
-Happy ending\(noval\) : she's gonna love him for taking charge of her soul, for despotism
-
-he hates people who are weak than himself
-
-## Romanticism 
-
-Individual
-
-feelings
-
-nature
-
-exceptional people
-
-## Author want to present us with this kind of sour romantic 
-
-Realism is a response of romanticism of the early 19th century
-
-* Plausible psychology
-* heroes tend to be ordinary people middle or lower classes
-* urban settings 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
