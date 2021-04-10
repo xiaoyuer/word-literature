@@ -1,2 +1,2 @@
-# Initial page
+# 孟子《性本善》
 
